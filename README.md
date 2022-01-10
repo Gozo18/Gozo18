@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Roman Jelínek
+- 📫 How to reach me: jelinek82@gmail.com
